@@ -1,1 +1,0 @@
-# adaptional-logo
